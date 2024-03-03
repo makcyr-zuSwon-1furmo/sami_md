@@ -6,6 +6,6 @@
 2.2 cffjkdl ee
 
 *1  qq qqffd
-*2 qwwww
+*2 qww
 
 ## картинки
